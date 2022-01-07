@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Yous34
+- 👀 I’m interested in Gaming, Automation and Arduino projects
+- 💞️ I’m looking to collaborate on Arduino Projects
+- 📫 How to reach me Discord: Yous34#8824 Twitter: https://twitter.com/yous34YT
